@@ -1,2 +1,2 @@
-# laughing-meme
-Zogu's Trash
+# Zogu's Trash
+
